@@ -1,2 +1,0 @@
-# YuhongBu
-A self introduction 
